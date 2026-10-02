@@ -56,7 +56,7 @@ Git          █████████████████░░░
 
 ### 🌐 Connect
 
-**GitHub:** `@YOUR_USERNAME`  
-**Discord:** `YOUR_DISCORD`
+**GitHub:** `@baconzoro87-svg`  
+**Discord:** `1azmal1`
 
-> *Build. Break. Fix. Repeat.* ⚡
+> *You Are not A limit Codes are.* ⚡
